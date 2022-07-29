@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ayush-206
 - 👀 I’m interested in making money.
-- 🌱 I’m currently learning about stock market.
+- 🌱 I’m currently learning data analyst.
 - 📫 How to reach me as6316206@gmail.com
 
 <!---

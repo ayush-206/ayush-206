@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ayush-206
-- 👀 I’m interested in making money.
+- 👀 I’m interested in learning and gaining experience in data field.
 - 🌱 I’m currently learning data analytics.
 - 📫 How to reach me as6316206@gmail.com
 
